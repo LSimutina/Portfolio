@@ -3,7 +3,7 @@
 ФИО: Симутина Лидия Александровна
 Дата рождения: 28.11.1994
 
-[Фото](https://sun7-14.userapi.com/s/v1/if2/j9lnriTb4xv2jTEod9cZmMvnt_aMKSzu-LxPRe65j-QItLsxy-xmF0wfTtBvIEJdGjnmi-OJkMrovht9z04nAg3S.jpg?size=200x200&amp;quality=96&amp;crop=0,227,526,526&amp;ava=1" alt="" class="vkuiAvatar__img Avatar__img)
+[Фото](https://sun7-14.userapi.com/s/v1/if2/j9lnriTb4xv2jTEod9cZmMvnt_aMKSzu-LxPRe65j-QItLsxy-xmF0wfTtBvIEJdGjnmi-OJkMrovht9z04nAg3S.jpg?size=200x200&amp;quality=96&amp;crop=0,227,526,526&amp;ava=1)
 
 ### **Образование**
 
